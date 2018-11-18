@@ -1,1 +1,0 @@
-# About VietNLP Group
